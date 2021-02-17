@@ -1,3 +1,3 @@
-# EVO game
- smash with game characters HAHA
-# EVO-game
+# Brackeys game jam Stronger together
+  bunnies be crazy you know man
+  
